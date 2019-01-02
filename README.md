@@ -1,1 +1,1 @@
-# Helpful Cheat sheet for MATH-203 final exam
+# Helpful Cheat Sheet for MATH-203 Final Exam
